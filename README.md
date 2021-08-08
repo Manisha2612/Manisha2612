@@ -1,0 +1,1 @@
+Graduate Student at USC with industrial work experience in software development and data engineering. Currently, building my skills in Machine learning and Data science and looking for opportunities to implement my current knowledge and learn new skills.
